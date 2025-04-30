@@ -2,7 +2,7 @@
 - 👀 I’m interested in learning
 - 🌱 I’m currently learning everything
 - 💞️ I’m looking to collaborate on any oportunity
-- 📫 How to reach me: @fer.melchert (IG)
+- 📫 How to reach me: @fern.melchert (IG)
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: Went to college in San Francisco
 
